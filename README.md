@@ -1,4 +1,4 @@
-# **Maria Fernanda De Bastiani** 💻
+# **Maria Fernanda De Bastiani** 
 
 Hi! I'm a 3rd-year **computer engineering** student at the **Federal University of Technology - Paraná (UTFPR)**, Brazil. 
 
